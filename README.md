@@ -158,4 +158,7 @@
 
 
 ## 📞 Способ связи со мной:
-почта -bunderwalt@gmail.com
+Почта - bunderwalt@gmail.com
+Telegram - Bunderwalt
+
+
